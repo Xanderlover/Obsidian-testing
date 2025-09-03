@@ -73,12 +73,6 @@ Depending on the game the arrangement goes something like.
 
 **Smash Bros Ultimate: Intro > Main Theme > Deviation > Back to Main (LOOP)**
 
-**Celeste (Resurrections track): Intro > (Part 1) Idea 2 > Idea 3 > (Part 2) Idea 1 > (Part 2) Idea 2 > Deviation > (Part 3) Chorus 1 > Chorus 2?**
-**TODO**
-
-8-Bit Music Theory covers more into Celeste music (Broad Musical Compositions)
-![Celeste Style](https://www.youtube.com/watch?v=AeMv8Z0TIos)
-
 Sometimes composers might get attached on a certain arrangement or musical piece, but it is something you can make similar but not replicate?
 
 Also humming them melody is vital to having a good memorable music song.
